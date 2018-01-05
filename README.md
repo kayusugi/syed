@@ -1,0 +1,2 @@
+# syed
+nama sendiri
